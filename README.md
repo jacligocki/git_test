@@ -1,1 +1,1 @@
-This is Jacqueline's first project! Hi
+This is Jacqueline's first project! Hi there
